@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Lego?
+- 👀 I’m interested in dox, swat, deanon
+- 🌱 I’m currently learning learn
+- 💞️ I’m looking to collaborate on JetBrains
+- 📫 How to reach me no way
+- ⚡ Fun fact: i am not have a computer
